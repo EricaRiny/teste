@@ -6,3 +6,6 @@ eu odeio MUITO a LUIZA SEMPRE
 eu odeio a luiza as vezes
 
 AAAAAAAAA
+MUITO ODIO PELA LUIZA
+
+quero suco
